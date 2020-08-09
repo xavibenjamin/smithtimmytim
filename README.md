@@ -5,4 +5,4 @@ a Latinx geek, coffee snob, and maker of stuff in Oceanside, CA. I’m a talente
 - Pronouns: he/him
 - Visit my personal site: https://smithtimmytim.com
 - Follow me on Twitter: [@smithtimmytim](https://twitter.com/smithtimmytim)
-- Send me an email: <smith@ttimsmith.com>
+- Send me an email: <tim@smithtimmytim.com>
