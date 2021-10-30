@@ -4,6 +4,5 @@ a Latinx geek, coffee snob, and maker of stuff in Vista, CA. I’m a talented de
 
 - Pronouns: he/him
 - Visit my personal site: https://smithtimmytim.com
-- Read my blog: https://timmmmy.blog
 - Follow me on Twitter: [@smithtimmytim](https://twitter.com/smithtimmytim)
 - Send me an email: <tim@smithtimmytim.com>
