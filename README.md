@@ -1,8 +1,8 @@
 ## Howdy! 🖖🏽 I'm Tim— 
 
-a Latinx geek, coffee snob, and maker of stuff in Vista, CA. I’m a talented designer and developer that’s worked on the web for over ten years building thoughtful, intuitive, and inclusive user experiences.
+Your geeky queer anti-capitalist bestie. I work as a Senior Frontend Engineer at 10up from sunny Vista, CA. Chapín/Boricua 🇬🇹🇵🇷
 
-- Pronouns: he/him
+- Pronouns: he/they
 - Visit my personal site: https://smithtimmytim.com
 - Follow me on Twitter: [@smithtimmytim](https://twitter.com/smithtimmytim)
-- Send me an email: <tim@smithtimmytim.com>
+- Send me an email: <desk@smithtimmytim.com>
