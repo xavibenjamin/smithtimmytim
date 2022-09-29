@@ -1,4 +1,4 @@
-## Howdy! 🖖🏽 I'm Tim— 
+## Howdy! 🖖🏽 I'm Xavi— 
 
 Your geeky queer anti-capitalist bestie. I work as a Senior Frontend Engineer at 10up from sunny Vista, CA. Chapín/Boricua 🇬🇹🇵🇷
 
